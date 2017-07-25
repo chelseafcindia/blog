@@ -1,12 +1,12 @@
 # # # # # # # #
-#   K i k o   #
+#   Chelsea India Supporters' Club  #
 # # # # # # # #
 
 # Basic
-name:               "Kiko"
+name:               "Chelsea India Supporters' Club"
 
 # URL
-baseurl:            "/Kiko"
+baseurl:            "https://blog.chelseaindia.com"
 #baseurl:            "" #For Root Domain
 permalink:          /:year/:month/:day/:title.html
 
@@ -15,10 +15,10 @@ markdown:           rdiscount
 
 # Navigation
 nav:
-  - name:           "About"
-    href:           "//gfjaru.github.io/Kiko/about"
-  - name:           "Download"
-    href:           "//github.com/gfjaru/Kiko/releases"
+  - name:           "Home"
+    href:           "https://chelseaindia.com"
+  - name:           "Twitter"
+    href:           "https://twitter.com/ChelseaIndia"
 
 # Sass
 sass:
