@@ -1,6 +1,6 @@
 ---
 title: Blog
-timezone: UTC
+timezone: Asia/Kolkata
 collections:
   posts:
     title: Posts
@@ -28,4 +28,4 @@ nav:
 - name: Twitter
   href: https://twitter.com/ChelseaIndia
 sass:
-  style: :compressed
+  style: compressed
