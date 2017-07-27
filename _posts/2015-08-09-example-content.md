@@ -1,5 +1,6 @@
 ---
 title: Example content
+date: 2015-08-09 00:00:00 Z
 ---
 
 <p class="lead">Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nulla ullamcorper est in imperdiet molestie. Curabitur aliquet sem in ante venenatis.</p>
