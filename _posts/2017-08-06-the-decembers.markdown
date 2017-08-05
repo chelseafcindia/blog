@@ -9,10 +9,8 @@ So let’s have a flashback on Chelsea’s league performance in the last 5 year
 
 **2009-10 Season**\
 *The Double Winning Season*\
-Games played :- 6
-\
-Points:- 9 (W2 D3 L1)
-\
+Games played :- 6\
+Points:- 9 (W2 D3 L1)\
 GD:- \+1
 \
 Ancelotti’s men had a pretty decent December time in our winning campaign. The big fixtures included
@@ -20,11 +18,11 @@ Ancelotti’s men had a pretty decent December time in our winning campaign. The
 an away trip to Etihad where we lost 3 points and then a home game against Everton which saw an
 \
 entertaining 3-3 draw. We ended our year perfectly defeating rivals Fulham in the West London Derby.
-\
+\\
 
 \
-**2010-11 Season
-**\
+\*\*2010-11 Season
+\*\*\
 Games played :- 4
 \
 Points:- 5 (W1 D2 L1)
@@ -45,9 +43,9 @@ January transfer window. King Carlo was eventually sacked on 22 nd May, 2011 aft
 \
 Everton.
 
-**\
+\*\*\
 2011-12 Season
-**\
+\*\*\
 Games Played:-6
 \
 Points:-9 (W2 D3 L1)
@@ -63,8 +61,8 @@ the entire season, our December fixtures were much better which saw us score 9 p
 18\. The last fixture of the year saw a shock 1-3 defeat away to Aston Villa.
 
 \
-**2012-13 Season
-**\
+\*\*2012-13 Season
+\*\*\
 Games Played:-5
 \
 Points:-12(W4 D0 L1)
@@ -82,8 +80,8 @@ won all 12 pts from the remaining 4 fixtures which included our season best scor
 Villa.
 
 \
-**2013-14 Season
-**\
+\*\*2013-14 Season
+\*\*\
 Games Played:-7
 \
 Points:-16(W5 D1 L1)
@@ -106,9 +104,9 @@ game and that has kept us at the top since the start of the league. Jose Mourinh
 \
 similar performances from the team as we look to win our 4 th League title and 3 rd under The Special One.
 
-**2014-15 Season
+\*\*2014-15 Season
 \
-**Winter Fixtures so far:
+\*\*Winter Fixtures so far:
 \
 Chelsea 3-0 Spurs
 \
@@ -117,7 +115,7 @@ Newcastle United 2-1 Chelsea
 Chelsea 2-0 Hull City
 \
 Stoke City 0-2 Chelsea
-\
+\\
 
 \
 Remaining fixtures
@@ -125,7 +123,7 @@ Remaining fixtures
 Chelsea vs West Ham (26th)
 \
 Southampton vs Chelsea (28th)
-\
+\\
 
 \
 It’s all looking promising for us so far! Watch out this space for pre-match build-up and post match
@@ -133,7 +131,7 @@ It’s all looking promising for us so far! Watch out this space for pre-match b
 tactical analysis.
 \
 Merry Christmas and a Happy Blue New Year!!
-\
+\\
 
 \
 KTBFFH!
