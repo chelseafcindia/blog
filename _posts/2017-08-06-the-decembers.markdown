@@ -9,11 +9,11 @@ So let’s have a flashback on Chelsea’s league performance in the last 5 year
 
 **2009-10 Season**
 
-*The Double Winning Season*
-Games played :- 6
-Points:- 9 (W2 D3 L1)
-GD:- +1
-
+*The Double Winning Season*\
+Games played :- 6\
+Points:- 9 (W2 D3 L1)\
+GD:- \+1
+\
 Ancelotti’s men had a pretty decent December time in our winning campaign. The big fixtures included
 \
 an away trip to Etihad where we lost 3 points and then a home game against Everton which saw an
