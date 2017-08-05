@@ -7,10 +7,14 @@ December is one of the most important months in the EPL title race. A jam packed
 
 So let’s have a flashback on Chelsea’s league performance in the last 5 years during this period.
 
-**2009-10 Season**\
-*The Double Winning Season*\
-Games played :- 6\
-Points:- 9 (W2 D3 L1)\
+**2009-10 Season**
+
+*The Double Winning Season*
+
+Games played :- 6
+
+Points:- 9 (W2 D3 L1)
+
 GD:- \+1
 \
 Ancelotti’s men had a pretty decent December time in our winning campaign. The big fixtures included
