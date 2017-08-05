@@ -3,47 +3,33 @@ title: The Decembers
 date: 2017-08-06 01:20:00 +05:30
 ---
 
-December is one of the most important months in the EPL title race. A jam packed schedule with
-\
-League, Cup and European fixtures, add to that festive mood and the cherry on the cake – those cold-
-\
-wet evenings! No doubt the “winter curse” sends a chill down spines – especially if you’re a Blues fan.
+December is one of the most important months in the EPL title race. A jam packed schedule with League, Cup and European fixtures, add to that festive mood and the cherry on the cake – those cold-wet evenings! No doubt the “winter curse” sends a chill down spines – especially if you’re a Blues fan.
 
-\
 So let’s have a flashback on Chelsea’s league performance in the last 5 years during this period.
 
-### \
-2009-10 Season
+**2009-10 Season**\
+*The Double Winning Season*\
+Games played :- 6
 \
-*(The Double Winning Season)
-*
-
-\
-*Games played :- 6
-*\
-*Points:- 9 (W2 D3 L1)
+Points:- 9 (W2 D3 L1)
 \
 GD:- \+1
-*
-
 \
 Ancelotti’s men had a pretty decent December time in our winning campaign. The big fixtures included
 \
 an away trip to Etihad where we lost 3 points and then a home game against Everton which saw an
 \
 entertaining 3-3 draw. We ended our year perfectly defeating rivals Fulham in the West London Derby.
-
-### \
-2010-11 Season
+\
 
 \
-*Games played :- 4
+**2010-11 Season
+**\
+Games played :- 4
 \
 Points:- 5 (W1 D2 L1)
 \
 GD:- -1
-*
-
 \
 After winning the previous season, lot was expected fromThe Pensioners this season. The season had its
 \
@@ -59,17 +45,14 @@ January transfer window. King Carlo was eventually sacked on 22 nd May, 2011 aft
 \
 Everton.
 
-### \
+**\
 2011-12 Season
-
-\
-*Games Played:-6
+**\
+Games Played:-6
 \
 Points:-9 (W2 D3 L1)
 \
 GD:-\+2
-*
-
 \
 2011-12 Season will forever be remembered by Chelsea fans. We won our 1 st ever Champions League.
 \
@@ -79,17 +62,14 @@ the entire season, our December fixtures were much better which saw us score 9 p
 \
 18\. The last fixture of the year saw a shock 1-3 defeat away to Aston Villa.
 
-### \
-2012-13 Season
-
 \
-*Games Played:-5
+**2012-13 Season
+**\
+Games Played:-5
 \
 Points:-12(W4 D0 L1)
 \
 GD:-\+10
-*
-
 \
 After the sacking of Champions League winning manager Roberto Di Matteo, former Liverpool manager
 \
@@ -101,17 +81,14 @@ won all 12 pts from the remaining 4 fixtures which included our season best scor
 \
 Villa.
 
-### \
-2013-14 Season
-
-*\
+\
+**2013-14 Season
+**\
 Games Played:-7
 \
 Points:-16(W5 D1 L1)
 \
 GD:-\+5
-*
-
 \
 This season saw the return of The Special One, or rather – The Happy One. In December, we got 16
 \
@@ -127,11 +104,11 @@ December fixtures are always important for any team’s title aspirations. This 
 \
 game and that has kept us at the top since the start of the league. Jose Mourinho would be expecting
 \
-similar performances from the team as we look to win our 4th League title and 3rd under The Special One.
+similar performances from the team as we look to win our 4 th League title and 3 rd under The Special One.
+
+**2014-15 Season
 \
-
-### 2014-15 Season
-
+**Winter Fixtures so far:
 \
 Chelsea 3-0 Spurs
 \
