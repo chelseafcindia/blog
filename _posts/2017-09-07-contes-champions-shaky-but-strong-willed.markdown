@@ -1,0 +1,26 @@
+---
+title: Conte’s Champions – Shaky but Strong Willed
+date: 2017-09-07 11:29:00 +05:30
+---
+
+Steadying the Ship is what I would personally opine based on the recent performance of our club on & off the pitch…
+
+Well the previous season’s performance by the blues took the PL by storm in literal sense. With Conte now incharge of the clubs activities during the off Season, the supporters waited anxiously in anticipation of the upcoming hectic season and the possible objectives to be achieved.
+
+It all began with the pre-season tour of East Asia which gave the fans a feeler of what to expect come next season. This is the first season of the club after the Talismanic Captain, Leader and Legend John Terry parted his way and moved to Aston Villa.
+
+A 3-0 win over cross town rivals Arsenal in the first match of the tour was a perfect warm up and nostalgic for all involved. With the fierce Diego Costa no more involved in the Boss’ team combination, Michy Batshuayi & co. stepped up to sink Arsenal. The Next two games of the tour against two of the biggest continental rivals – Bayern Munich and Inter Milan ended in defeat for the Blues.
+
+Antonio Conte’s warriors headed home to prepare for the upcoming tough challenges of the fast approaching new season and also groom the new arrivals of the squad – Willy Caballero formerly of Manchester City, Antonio Rudiger from AS Roma, Tiemoue Bakayoko from AS Monaco and Alvaro Morata from Real Madrid who came in for Nemanja Matic (Man Utd), Nathaniel Chalobah (Watford FC), Nathan Ake (AFC Bournemouth), Asmir Begovic (Bournemouth), Christian Atsu (Newcastle), Juan Cuadrado (Juventus FC), Bertrand Traore (Olympique Lyon) and others on loan to Various clubs notably Kurt Zouma (Stoke City FC), Ruben Loftus Cheek (Crystal Palace FC), Tammy Abraham (Swansea City FC).
+
+No Sooner than the Blues settled at home, the season’s first marquee challenge – The Community Shield vs Arsenal was up. A fierce contest in which the blues took the lead and were on course to bring home the first silverware of the season courtesy a Victor Moses goal. 10 minutes before full time, Pedro got himself sent off for a cynical challenge and gave Arsenal a way back into the game. From then on Arsenal had the upper hand and won the game via penalties (1-3).
+
+It was important to knock off the uneasy memories of the Community Shield sooner as Burnley visited us for the first game of the Premier League. However it was not meant to be as Captain Gary Cahill was sent off early in the first half and the champions pegged back by not 1, 2 but 3 goals. A truly nightmarish sight for all Chelsea fans. 10 men staged a fightback in the 2nd half and then Cesc ‘Magic’ Fabregas was given the marching orders to reduce the blues to 9 on field. We were a bit unlucky to not salvage a point from the proceedings but the game ended with Burnley taking the 3 points as the final score read 2-3 as our new No 9 Alvaro Morata scored on his debut and the 2nd goal scored by David Luiz. It was the second consecutive season when the champions went down in the opening game of the Premier League.
+
+The Premier League is demanding and of high tempo by nature and the Champions were on the road to Wembley, the temporary home ground of Tottenham Hotspurs. The Home of Spurs, Really? The Champions were pegged back owing to the current run of form and the notorious Eden Hazard one of the absentee due to injury in the pre-season while on national duty but when the chips were down, the Champions rose to the occasion. A feisty contest by all means and the Blues came out on Top nullifying the Spurs trio of Harry Kane, Dele Alli and Christian Eriksen in one of the most sound defensive displays courtesy of Captain Cesar ‘Dave’ Azpilicueta, Andreas Christensen and Antonio Rudiger and commanding displays from Bakayoko, on debut and N’Golo ‘Omnipresent’ Kante! Man of the Match Marcos Alonso sank the spurs with 2 magnificent strikes and The Champions had the first points on the table for the season as the score read 1-2 at full time.
+
+Up Next it was Everton who visited the home of the Champions. The rejuvenated Everton side had a host of new faces with Wayne Rooney and Sigurdsson in their line-up. And the Champions put forth a commanding display courtesy of Alvaro Morata who made one for Fabregas to take the lead and then scored another to double our lead in the first half. Alvaro Morata became the first player in Premier League history to both score and assist a goal in each of his first two home games. The second half was calmer as opposed to the first half as Pedro, Victor Moses and Bakayoko couldn’t triple our lead. 3 points in the bag and the Champions are on the rise.
+
+Throughout the transfer window our squad lacked personnel in a couple of departments. On Deadline Day, the arrival of Davide Zappacosta (No.6) from Torino and Danny Drinkwater (No. 21) from Leicester City plugged in those gaps and provide much needed depth in the squad as we are on the cusp of Champions League and Cup Competitions.
+
+To summarise our season so far, it was a wobbly start to the season and suspensions created a doubt on lack of depth of squad but the response from our team after the torrid start and the timely transfer activity has surely ensured that we are on par with top sides to go all guns blazing. COME ON CHELSEA!!
