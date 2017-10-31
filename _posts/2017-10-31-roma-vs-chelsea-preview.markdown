@@ -111,13 +111,15 @@ I think these are the key players for us who must perform if we are going for an
 Chelsea currently tops the group with seven points from three games. With a win over Roma, Chelsea can qualify for the last 16 with two games to spare if Atletico Madrid fails to beat Qarabag in the Spanish capital on Halloween. Chelsea also faces Manchester United in the weekend at Stamford Bridge, so coming back home with a draw would be gold for Antonio’s men.
 
 
+
+
 _________________________________________
 
 This is my first blog with Chelsea India. I hope everyone liked it. Please let me know your thoughts in the comments section below. 
 
 KTBFFH
 
-Karthick G’Nair
+**Karthick G’Nair**
 
 
 
