@@ -50,7 +50,7 @@ If Chelsea is going to improve on the result at the Stadio Olimpico, manager Ant
 
 Chelsea and Roma have faced each other five times, in which Chelsea have managed to beat the Italians twice. The 3-3 draw at Stamford Bridge was the second draw between them. Roma has managed to beat Chelsea only once before in a 3-1 victory at Stadio Olimpico back in 2008 in a champions league game.
 
-![Graph.PNG](/uploads/Graph.PNG)
+![Graph1.jpg](/uploads/Graph1.jpg)
 
 
 
