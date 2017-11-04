@@ -67,7 +67,7 @@ Conte believes they are benefiting from regular involvement at first-team level.
 
 ### Head to Head – Chelsea vs Manchester United:
 
-[3.JPG](/uploads/3.JPG)
+![3.JPG](/uploads/3.JPG)
 
 Chelsea and United have faced each other for 187 times overall, in which United have managed to win 76 of them while Chelsea have won 52 times and they have also shared points for the remaining 49 of them. 
 
@@ -80,6 +80,7 @@ Chelsea and United have faced each other for 187 times overall, in which United 
 ### Team News & Predicted Line-ups:
 
 **Chelsea XI:**
+
 Chelsea have shipped 11 goals in their six matches without N'Golo Kante in central midfield and, after working his way back to fitness on the training ground, There are lingering doubts over the fitness of N'Golo Kante, Conte may well risk throwing the Frenchman back into the starting fold pairing him with Bakayoko in the middle and Zappacosta and Alonso providing cover as wingbacks.
 
 ![5.jpg](/uploads/5.jpg)
@@ -91,6 +92,7 @@ I expect the back three to be Azpilicueta, David Luiz and Cahill with Courtois i
 Marquee summer signing Alvaro Morata has struggled for form since picking up an injury before the last international break, scoring no goals and setting up just one in his last six matches, putting even more pressure on Eden Hazard - three goals and an assist in the same timeframe and Pedro.
 
 **Manchester United XI:**
+
 In terms of the visitors, Mourinho is expected to recall Phil Jones and Antonio Valencia after giving them a breather in midweek, but further forward Jesse Lingard picked up a knock against Benfica and is a fitness doubt for this weekend.
 
 Michael Carrick, Paul Pogba and Marouane Fellaini have all stepped up their respective recovery programs, meanwhile, though this trip to West London will come too soon for all three of the central midfielders.
@@ -99,24 +101,26 @@ Mourinho may therefore go with the same XI that saw off Spurs a week ago, meanin
 
 ![6.jpg](/uploads/6.jpg)
 
+
 **Players to watch out for:**
+
 I think these are the key players for us who must perform if we are going for win tomorrow at home:
 
-**Eden Hazard**: Since Alvaro Morata is struggling for form after the injury, all the pressure is now on the Belgian now. We need a settler performance from him to win the game.
+**1. Eden Hazard**: Since Alvaro Morata is struggling for form after the injury, all the pressure is now on the Belgian now. We need a settler performance from him to win the game.
 
-**David Luiz**: Definitely the man to watch out for. David Luiz is easily seen switched off and out of positions a lot this season. Doing them same against the likes of Rashford, Mkhitaryan and Martial will end up again in a thrashing. 
+**2. David Luiz**: Definitely the man to watch out for. David Luiz is easily seen switched off and out of positions a lot this season. Doing them same against the likes of Rashford, Mkhitaryan and Martial will end up again in a thrashing. 
 
-**Alvaro Morata**: He has the perfect game to bring back his form and fire Chelsea back to the old stature. Expecting him to score tomorrow.
+**3. Alvaro Morata**: He has the perfect game to bring back his form and fire Chelsea back to the old stature. Expecting him to score tomorrow.
 
 ![7.jpg](/uploads/7.jpg)
 
 **Key players in the opposition to watch out for:**
 
-**Romelu Lukaku**: He has scored 7 and assisted 3 goals already this season and has played in all the 10 matches this season. 
+**1. Romelu Lukaku**: He has scored 7 and assisted 3 goals already this season and has played in all the 10 matches this season. 
 
-**Anthony Martial**: Martial coming in at 60 has been a huge success for Manchester United this season. Azpilicueta will have tough night keeping him and Rashford quite.
+**2. Anthony Martial**: Martial coming in at 60 has been a huge success for Manchester United this season. Azpilicueta will have tough night keeping him and Rashford quite.
 
-**David de Gea**: He’s just conceded in 2 of the 10 matches played in the premier league. By keeping 8 clean sheets out of 10, he just lets in 0.4 goals a match. Scoring past him is a definite test for Chelsea.
+**3. David de Gea**: He’s just conceded in 2 of the 10 matches played in the premier league. By keeping 8 clean sheets out of 10, he just lets in 0.4 goals a match. Scoring past him is a definite test for Chelsea.
 
 
 ### My Prediction: Chelsea 2 – 0 Manchester United. 
