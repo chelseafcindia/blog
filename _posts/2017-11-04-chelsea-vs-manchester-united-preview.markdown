@@ -126,7 +126,8 @@ I think these are the key players for us who must perform if we are going for wi
 ### My Prediction: Chelsea 2 – 0 Manchester United. 
 
 Even though Chelsea had a very poor game against Roma, I still think Chelsea will be on top of United in tomorrow’s game. As said earlier, If Chelsea fail to win tomorrow having already lost three games this season and a fourth defeat would be a hammer blow in retaining the title. But a win would automatically increase our morale to the future challenges after the international break.
-____________________________________________________________
+
+_________________________________________________________________________
 
 Hope you people liked this. I’ll catch you up again after the game with review. Please be in touch with Chelsea India for further more on Chelsea.
 
