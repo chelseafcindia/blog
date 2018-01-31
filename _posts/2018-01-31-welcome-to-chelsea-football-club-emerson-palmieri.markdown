@@ -24,9 +24,11 @@ Chelsea director **Marina Granovskaia** added: ‘We are delighted to welcome Em
 
 ## What can Chelsea fans expect from Palmieri?
 
+
 ### Profile:
 
 ![EmersonTable1.PNG](/uploads/EmersonTable1.PNG)
+
 
 ### Background:
 
@@ -35,6 +37,7 @@ Emerson was born and raised in **Santos** in Brazil but thanks to Italian ancest
 He made his debut for Santos at the age of 16 after coming through the youth system and by 18 he had established himself as a regular in the first team, thanks in part to his performances for Santos' U20 side as they won the **2013 Copa Sao Paulo de Futebol Junior**.
 
 He made his Campeonato Brasileiro Serie A debut in 2013 in a 1-0 defeat to Flamengo and scored his first goal in the same year in a 2-1 defeat at Atletico Paranaense.
+
 
 ### Move to Italy...
 
@@ -46,6 +49,7 @@ Palermo's loss was Roma's gain as they took the then-21-year-old on loan for the
 
 He went on to enjoy a breakthrough season with **Roma making his loan deal permanent for €2m** in December, but it ultimately ended in disappointment as he picked up an anterior cruciate ligament injury on the last day of the season.
 
+
 ### International recognition
 
 Emerson **represented Brazil at U17 level**, playing in the **2011 South American U17 football championship and the 2011 FIFA U17 World Cup**.
@@ -53,6 +57,7 @@ Emerson **represented Brazil at U17 level**, playing in the **2011 South America
 However, last year **he officially switched his allegiance to Italy** after acquiring Italian citizenship and he was called up for an informal training camp by coach Gian Piero Ventura early in 2017.
 
 He received his first national team call-up a few months later for Italy's friendly against San Marino but remains uncapped because of his untimely injury.
+
 
 ### What's his style?
 
@@ -63,6 +68,7 @@ He loves to get forward. He's well known for taking on and beating his opposite 
 ![Emerson2.jpg](/uploads/Emerson2.jpg)
 
 As Palmieri Conte looks to bring in some healthy competition for Marcus Alonso. Let’s compare their stats.
+
 ![EmersonTable2.PNG](/uploads/EmersonTable2.PNG)
 
 Standing at 5ft 9in, he's not afraid to use his frame to his advantage and he draws plenty of fouls from his side with his trickery.
