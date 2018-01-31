@@ -32,7 +32,7 @@ Chelsea director **Marina Granovskaia** added: ‘We are delighted to welcome Em
 
 ### Background:
 
-Emerson was born and raised in **Santos** in Brazil but thanks to Italian ancestry on his mother's side, became and Italian citizen last March.
+Emerson was born and raised in **Santos** in Brazil but thanks to Italian ancestry on his mother's side, became an Italian citizen last March.
 
 He made his debut for Santos at the age of 16 after coming through the youth system and by 18 he had established himself as a regular in the first team, thanks in part to his performances for Santos' U20 side as they won the **2013 Copa Sao Paulo de Futebol Junior**.
 
@@ -45,7 +45,7 @@ Emerson's performances for Santos were noticed by Italian club **Palermo**, who 
 
 However, his chances to shine were few and far between and after making just nine appearances the club passed on their option to make the deal permanent.
 
-Palermo's loss was Roma's gain as they took the then-21-year-old on loan for the 215/16 season. He spent his first season at the Stadio Olimpico as an understudy to Lucas Digne, but showed enough promise to have his loan deal extended for a further season.
+Palermo's loss was Roma's gain as they took the then-21-year-old on loan for the 2015/16 season. He spent his first season at the Stadio Olimpico as an understudy to Lucas Digne, but showed enough promise to have his loan deal extended for a further season.
 
 He went on to enjoy a breakthrough season with **Roma making his loan deal permanent for €2m** in December, but it ultimately ended in disappointment as he picked up an anterior cruciate ligament injury on the last day of the season.
 
