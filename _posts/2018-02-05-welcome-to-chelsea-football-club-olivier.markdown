@@ -2,6 +2,18 @@
 title: Welcome to Chelsea Football Club, Olivier!
 date: 2018-02-05 22:12:00 +05:30
 published: false
+categories:
+- 2018 Winter Transfer Window
+- Premier League
+- Chelsea
+tags:
+- Olivier Giroud
+- Champions League
+- Chelsea
+- Chelsea India
+- Arsenal
+- Winter Transfer Window
+- Premier League
 ---
 
 The Premier League Champions have announced the signing of France International **Olivier Giroud** on a deal worth just under £18m.
