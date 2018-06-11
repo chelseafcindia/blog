@@ -2,6 +2,7 @@
 title: 'My Chelsea World Cup XI: How would I line-up? Who could start and who I will
   drop?'
 date: 2018-06-11 22:00:00 +05:30
+permalink: my-chelsea-world-cup-xi
 categories:
 - FIFA
 - World Cup
