@@ -97,6 +97,7 @@ Moses plays in the wider, more attacking midfield positions for Nigeria. Wing ba
 
 Omeruo looked incredible in the 2014 World Cup. Then he suffered a series of injuries and he fell off of Chelsea’s radar. He has spent the last several seasons on loan in Turkey and could very well be sold before the summer ends. But for now, he is a Chelsea player in a strong Nigerian team. Nigeria has some upsets in them and they will be looking to spoil Argentina’s fun.
 
+
 ![6XI.png](/uploads/6XI.png)
 
 ---
