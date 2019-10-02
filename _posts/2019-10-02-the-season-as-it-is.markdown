@@ -13,6 +13,8 @@ tags:
 - Premier League
 ---
 
+![Season As It Is.jpg](/uploads/Season%20As%20It%20Is.jpg)
+
 After the club was handed a 2 window transfer ban it was quite a debated topic in the football world as to how a club like Chelsea going to fare in the 2019-20 season. The Premier League is considered as one of the toughest leagues in European football and for a club like Chelsea it was quite a blow as they were unable to get any quality players to get in the squad to be competitive for the season. Many predicted outcomes of the club having to face serious issues for the same. But eventually it turned as a blessing for us. 
 
 With our very own Super Frank being appointed as the coach of the club some hopes revived amongst the fans and a sense of belief started to grow gradually. It was quite obvious that the academy would play a big role this season and it was a great time to assess how the investments on our youth would pay off.
