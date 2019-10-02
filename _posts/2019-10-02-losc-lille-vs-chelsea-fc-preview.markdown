@@ -18,8 +18,7 @@ Chelsea who had a good weekend by defeating Brighton 2-0 will look to continue t
 
 Chelsea with a steady start this season, have been giving chances to youngsters, resulting in many talents being unleashed such as Tomori, Hudson-Odoi, Abraham, Mount etc. However, Pulisic who looked promising after signing for the club, hasn't been given much of game time. Frank Lampard’s side who are currently in 7th in the Premier League are just 1 point behind 4th placed Arsenal, and will back his young stars to shine away from home on Wednesday night.
 
-![Training.jpg](/uploads/Training.jpg)
-In the pic : Mason Mount and Tammy Abraham have been core player for this season under their gaffer Frank Lampard.
+![Training.jpg](/uploads/Training.jpg)*In the pic : Mason Mount and Tammy Abraham have been core player for this season under their gaffer Frank Lampard.*
 
 ### Team News
 
