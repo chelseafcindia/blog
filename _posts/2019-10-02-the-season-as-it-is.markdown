@@ -31,8 +31,8 @@ Talking about the attacking options this season I think we already have some of 
 
 Still, by far, the most important and the vital role will be of the senior and experienced players in our squad as they will be the role model of the youth. The youth has both quality along with the lack of experience in them for which the senior players are going to play a pivotal role for the club as a whole. With the players like Azpi (Dave), Willian, Pedro, Jorginho, Kante in our squad their contribution will play an important role to get us through this season.
 
-Having won 3 games, 2 draws and 2 losses in the 7 games that we have played in the premiership it seems that this season will not be as devastating as many predicted to be. But still there is a long way to go and the fans have to be really patient during the built up of a new Chelsea team. As the famous British novelist William Goulding once said ** “Patience, persistence and perspiration make an unbeatable combination for success” ** it is the patience of the fans which will play as a huge support for the new Chelsea era under a man from the Golden era of our club history. 
+Having won 3 games, 2 draws and 2 losses in the 7 games that we have played in the premiership it seems that this season will not be as devastating as many predicted to be. But still there is a long way to go and the fans have to be really patient during the built up of a new Chelsea team. As the famous British novelist William Goulding once said **“Patience, persistence and perspiration make an unbeatable combination for success”** it is the patience of the fans which will play as a huge support for the new Chelsea era under a man from the Golden era of our club history. 
 
 Keep The Blue Flag Flying High!!
 
-**-Mainak Mitra**
+** -Mainak Mitra **
