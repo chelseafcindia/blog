@@ -44,6 +44,6 @@ Chelsea have won seven of their last 12 away games in the UEFA Champions League 
 
 **Salomon Kalou:** Yet another core member of the Chelsea team from 2006-2012, who also featured in 2012 Champions League finals, joined Lille after the CL Finals on a free transfer.
 
-Keep the Blue Flag Flying High!!!
+> Keep the Blue Flag Flying High!!!
 
 **-Archith Shriram Ramesh**
