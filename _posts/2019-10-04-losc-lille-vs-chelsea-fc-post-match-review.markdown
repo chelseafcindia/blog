@@ -13,24 +13,21 @@ tags:
 
 ![Tam Celebration.jpeg](/uploads/Tam%20Celebration.jpeg)
 
-The Blues manage to pick up the first 3 points in the UEFA Champions league fixture against the French Ligue 1 club Lille. After an unfortunate defeat against Valencia at home it was a crucial game to get the Champions league run back on track.
+After two consecutive and comfortable wins over Grimsby and Brighton, Chelsea were up against Lille OSC in France. The Blues managed to pick up the first 3 points in Europe in the UEFA Champions League this season. It was definitely a breather after an unfortunate defeat against Valencia at home, it was a crucial game to get the Champions League run back on track.
 
-The boys started off well and controlled the opening 10 minutes of the game. The build-up play from the back looked promising and we had few chances at the start of the game. It was great to have Kante back at the squad as he lifted the morale of the players and added defensive stability at the back. We were moving the ball nice and quick and the passing was at the top level. This resulted in giving us the 1st goal from our homegrown beast “Tammy Abraham” from a beautiful lofted pass by Tomori who happens to be another gem of our Chelsea academy. The finishing was top class and it also marked his 1st goal in any European tournament which surely was a moment to remember for him on his special day. 
+Chelsea started off well in the opening minutes. The build-up play from the back looked promising, creating a few chances as well, but without luck. It was great to have Kante back as he lifted the morale of the players and added defensive stability to the squad. We were moving the ball nice and quick and this, in the 22nd minute, resulted in the first goal. A brilliant finish from Tammy to open the scoring, beating the offside trap from a delivery from Tomori. This well finished goal marked Tammy’s first European goal and the fact that it came on his birthday, made it more special. This was first goal for Chelsea in this season’s European campaign as well. 
 
 ![Abraham Celebration.jpeg](/uploads/Abraham%20Celebration.jpeg)
 
-Shortly after the goal Lille started to press our defence hard and tried to break us on the counter. The defence looked shaky at times. Kepa did amazingly well for us last night as he made some crucial saves and was at the top gear the whole time.
+The goal seemed to wake the attack of the hosts, as Lille’s counters became more intense and rapid, right after the opener. Kepa was the star for the Blues, making some incredible saves & timely interceptions to keep the hosts at bay.
 
-Lille threw waves of attack to our defence which forced us to concede a corner. The blues have been very vulnerable in defending set pieces this season and yesterday was another evidence of that when Benjamin Andre’s header gave Lille the equaliser at 33rd minute. The rest of the 1st half was being largely dominated by Lille who had a very disciplined 4-2-3-1 formation as a whole.
+Lille threw waves of attack to our defence which forced the Blues to concede a corner. The man in form for Lille, Victor Osimhen headed home to level the scores in the 33rd minute, raising his goal tally to 7 in just 10 appearances. It was all square at the break in France with the hosts creating more of the chances in the final minutes.
 
-Being up ahead at 22nd minute it was a sheer frustration for the players, manager and for the fans. Chelsea needed reaction in the 2nd half as we all knew we had to kill the game and get the crucial 3 points in our bag. But the start of the 2nd half was again dominated by Lille and it was hard for the blues to get the possession back. 
-
-Since the game was slipping out from our hands it was time when Lampard decided to swap Reece James with the CHOsen one. Odoi came off the bench at 67th minute and the substitution worked as a wonder. In 77th minute Odoi provided a classy lofted pass to Willian who made sure that the ball finishes at the back of the net. The finishing was top class and surely sealed the game off. 
+Looking to seal the game, the Blues were pretty much expected to go all out in the second half. Eying a winner, Frank Lampard replaced Reece James with the CHOsen one at the 67th minute. Changing back to the usual 4-3-3 formation, there came the much awaited second & eventually the winning goal, on the 77th minute. Callum Hudson-Odoi’s cross from the left was thumped on to the ground by Willian, which on the bounce ended right in the top corner of the net, leaving no room for Maignan to save it.
 
 ![Willian Celebration.jpeg](/uploads/Willian%20Celebration.jpeg)
 
-There were some individual errors from Kepa and Tomori at the final minutes of the game which nearly costed us a goal but was being nicely tackled by our Spanish No.1.
-The game ended as a win for us but still it showed that there were scopes of improvement in certain moments of the play. Defending looked a bit shaky at times and the finishing in the final third should have been more clinical. Nevertheless it was a first European victory for this new Chelsea side and for Frank Lampard as well whose tactical awareness surely got us the game. But we have to see how he assesses the flaws and makes improvement in the upcoming fixtures for the blues.
+Barring a few errors, the visitors saw off the attack from the Great Danes and sealed the much-needed win and the three points, placing Chelsea second on the table, having a better Goal difference than third placed Valencia. A good win, but more to learn from this visit to Stade Pierre-Mauroy. Nevertheless, it was a first European victory for this new Chelsea side and for Frank Lampard as well, whose tactical awareness surely got us the game. But one has to see how he assesses the areas of improvement in the upcoming fixtures for the Blues. 
 
 > Keep The Blue Flag Flying High!!
 
