@@ -20,10 +20,13 @@ That came back in 2012 when Papiss Cisse scored twice in a 2-0 win for the Magpi
 Chelsea are expected to play in a 4-3-3 formation against Newcastle tonight. Knowing the counter attacking capabilities of the opponent, Lampard would surely try to play out the game with a disciplined defending at the back. This is the team we can expect for tonight’s match:
 
 ![Line ups.jpg](/uploads/Line%20ups.jpg)
+*Courtesy: buildlineup.com*
 
 ## Players to Watch Out for
 
-### Tammy Abraham: Having bagged 8 goals so far, he is currently the top scorer in the Premier League. As such, the hopes are high that he will surely have an impact in tonight’s game as well.
+
+### Tammy Abraham: 
+Having bagged 8 goals so far, he is currently the top scorer in the Premier League. As such, the hopes are high that he will surely have an impact in tonight’s game as well.
 
 ### Callum Hudson-Odoi: ### 
 After returning from the injury, Callum is still due on his first goal in the Premier league for Chelsea this season, but he has already shown glimpses that he is hungry for them, scoring a brace against Austria with the England’s Under-21 team. He is expected to perform for the Blues.
