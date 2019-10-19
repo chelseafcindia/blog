@@ -1,6 +1,13 @@
 ---
 title: Chelsea FC vs Newcastle United - Preview
 date: 2019-10-19 17:52:00 +05:30
+categories:
+- Football
+tags:
+- Chelsea FC
+- Chelsea India
+- Newcastle United
+- Premier League
 ---
 
 Finally, the international break is over, and the Blues will be back in action tonight against the Magpies at Stamford Bridge. Chelsea enjoyed a 4-game winning run in all competitions before the international break under Frank Lampard for the 1st time and the Blues will be looking to make it 5 wins out of 5, with a win against Newcastle United tonight.
@@ -26,7 +33,7 @@ Chelsea are expected to play in a 4-3-3 formation against Newcastle tonight. Kno
 
 
 ### Tammy Abraham: 
-Having bagged 8 goals so far, he is currently the top scorer in the Premier League. As such, the hopes are high that he will surely have an impact in tonight’s game as well. `What a player.`
+Having bagged 8 goals so far, he is currently the top scorer in the Premier League. As such, the hopes are high that he will surely have an impact in tonight’s game as well. 
 
 ### Callum Hudson-Odoi: ### 
 After returning from the injury, Callum is still due on his first goal in the Premier league for Chelsea this season, but he has already shown glimpses that he is hungry for them, scoring a brace against Austria with the England’s Under-21 team. He is expected to perform for the Blues.
