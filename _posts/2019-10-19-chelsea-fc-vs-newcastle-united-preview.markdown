@@ -20,7 +20,7 @@ That came back in 2012 when Papiss Cisse scored twice in a 2-0 win for the Magpi
 Chelsea are expected to play in a 4-3-3 formation against Newcastle tonight. Knowing the counter attacking capabilities of the opponent, Lampard would surely try to play out the game with a disciplined defending at the back. This is the team we can expect for tonight’s match:
 
 ![Line ups.jpg](/uploads/Line%20ups.jpg)
-*Courtesy: buildlineup.com*
+*Photo courtesy: buildlineup.com*
 
 ## Players to Watch Out for
 
