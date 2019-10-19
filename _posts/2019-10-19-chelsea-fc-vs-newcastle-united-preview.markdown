@@ -23,7 +23,7 @@ Chelsea are expected to play in a 4-3-3 formation against Newcastle tonight. Kno
 
 ## Players to Watch Out for
 
-### Tammy Abraham: ### 
+### Tammy Abraham:  
 Having bagged 8 goals so far, he is currently the top scorer in the Premier League. As such, the hopes are high that he will surely have an impact in tonight’s game as well.
 
 ### Callum Hudson-Odoi: ### 
