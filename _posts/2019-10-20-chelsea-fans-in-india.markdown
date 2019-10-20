@@ -31,13 +31,11 @@ For the Chelsea fans in India, the connection changes every possible things of t
 
 Despite of having great local supporting teams or local franchisee, like Mumbai, Kolkata, Tamil Nadu, Delhi, etc, emotions of having a deep connection with Chelsea is extraordinary. From supporting sporting icons like Sachin, Kohli, Ganguly, Chettri, Dhoni, etc, the whole fan base has an extreme respect and love for Mr Chelsea aka John Terry, Super Frankie, King Drogba, & The Cech Wall.
 
-![4-fdea00.png](/uploads/4-fdea00.png)
-
 Sleep is just a collaboration of different letters for Chelsea fans in India. We wake up at 6 am in the morning for watching ICC fixture, we can miss our work for early EPL fixture, our sort of weekends party are different than others, because we dance together when Tammy scores a banger. Staying awake late night on weekdays for catching our team play in the UCL with the bliss of the Anthem playing in the background. Celebrating those goals as if we were standing at Stamford Bridge, can turn out to be dangerous for many young fans, because messing up with Indian parent’s sleep.
 
-The unity of fan base makes the bond stronger & it's gradually turning out to be strongest in the recent times. The fan base has changed now & became a family. From crying together at 2008 UCL finals, giving shoulders to other even after going through tough times, from being aggressively accepting the situation & blowing thunder inside ourselves after seeing King Drogba's reaction in 2009 UCL Semis, from dancing with joy, crying happy tears to live the best day of life together on 19th May 2012, going into depression with continuous tear in eyes of each & every fans while bidding goodbye to the club's iconic legends, the fan base turned out into a religion, and then a Family. 
-
 ![5.png](/uploads/5.png)
+
+The unity of fan base makes the bond stronger & it's gradually turning out to be strongest in the recent times. The fan base has changed now & became a family. From crying together at 2008 UCL finals, giving shoulders to other even after going through tough times, from being aggressively accepting the situation & blowing thunder inside ourselves after seeing King Drogba's reaction in 2009 UCL Semis, from dancing with joy, crying happy tears to live the best day of life together on 19th May 2012, going into depression with continuous tear in eyes of each & every fans while bidding goodbye to the club's iconic legends, the fan base turned out into a religion, and then a Family. 
 
 So if we are a family, what's the major occasion or our family gathering festival!? OFCOURSE we have one. All thanks to the biggest and the foremost official Chelsea's fan club in India - CISC (Chelsea India Supporters Club). The biggest festival of this family, where we buy new Jerseys together, where we plan to visit the destination together, where we plan to play together, where we watch a historical fixture together, where we gather from each part of the country to meet together. 
 
