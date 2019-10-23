@@ -41,11 +41,11 @@ Down the line back in 2013, the current Europa League holders Chelsea, won the s
 
 **Ashley Cole:** Played at Left Back, and joined former team-mate Frank Lampard in Chelsea's coaching staff, where he will be working with the U15s.
 
-**Frank Lampard:** The man who captained in the finals, is our current First Team Manager
+**Frank Lampard:** The man who captained in the finals, is our current First Team Manager.
 
 ![UEL Lampard.jpg](/uploads/UEL%20Lampard.jpg)
 
-## Injury and Suspensions
+## Injuries and Suspensions
 
 * N’golo Kante(Groin)
 * Andreas Christensen(Hamstring)
@@ -62,7 +62,7 @@ Azpilicueta, Zouma, Tomori,
 James, Jorginho, Mount, Alonso, 
 Willian, Abraham, Hudson-Odoi.
 
-Kovacic, if preferred to start the competition which he won thrice, Chelsea might switch to 4-3-3 formation, where James will be dropped, Azpi will be in RB and Alonso would be given a test at LB
+Kovacic, if preferred to start the competition which he won thrice, Chelsea might switch to 4-3-3 formation, where James will be dropped, Azpi will be in RB and Alonso would be given a test at LB.
 
 Kepa, 
 Azpilicueta, Zouma, Tomori, Alonso,
