@@ -64,7 +64,7 @@ Willian, Abraham, Hudson-Odoi.
 
 Kovacic, if preferred to start the competition which he won thrice, Chelsea might switch to 4-3-3 formation, where James will be dropped, Azpi will be in RB and Alonso would be given a test at LB
 
-Kepa; 
+Kepa, 
 Azpilicueta, Zouma, Tomori, Alonso,
 Kovacic, Jorginho, Mount,
 Willian, Abraham, Hudson-Odoi.
