@@ -35,7 +35,7 @@ Down the line back in 2013, the current Europa League holders Chelsea, won the s
 
 ## Players Who Won the Europa League, and Still at the Club
 
-1. **Petr Cech:** The great wall of Czech who was between the sticks, is currently our Technical & Performance Advisor.
+1.**Petr Cech:** The great wall of Czech who was between the sticks, is currently our Technical & Performance Advisor.
 
 2. **Cesar Azpilicueta:** Current captain, played complete 90 mins at Right Back during the finals, which was his first season at Chelsea.
 
