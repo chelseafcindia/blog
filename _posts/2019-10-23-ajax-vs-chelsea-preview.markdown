@@ -35,13 +35,13 @@ Down the line back in 2013, the current Europa League holders Chelsea, won the s
 
 ## Players Who Won the Europa League, and Still at the Club
 
-1. **Petr Cech:** The great wall of Czech who was between the sticks, is currently our Technical & Performance Advisor.
+* **Petr Cech:** The great wall of Czech who was between the sticks, is currently our Technical & Performance Advisor.
 
-2. **Cesar Azpilicueta:** Current captain, played complete 90 mins at Right Back during the finals, which was his first season at Chelsea.
+* **Cesar Azpilicueta:** Current captain, played complete 90 mins at Right Back during the finals, which was his first season at Chelsea.
 
-3. **Ashley Cole:** Played at Left Back, and joined former team-mate Frank Lampard in Chelsea's coaching staff, where he will be working with the U15s.
+* **Ashley Cole:** Played at Left Back, and joined former team-mate Frank Lampard in Chelsea's coaching staff, where he will be working with the U15s.
 
-4. **Frank Lampard:** The man who captained in the finals, is our current First Team Manager
+* **Frank Lampard:** The man who captained in the finals, is our current First Team Manager
 
 ![UEL Lampard.jpg](/uploads/UEL%20Lampard.jpg)
 
