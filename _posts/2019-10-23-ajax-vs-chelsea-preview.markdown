@@ -1,5 +1,5 @@
 ---
-title: Ajax vs Chelsea – Preview
+title: AFC Ajax vs Chelsea – Preview
 date: 2019-10-23 15:36:00 +05:30
 categories:
 - Football
