@@ -1,6 +1,18 @@
 ---
 title: 'Arjun Kapoor: One of Our Own'
 date: 2019-10-25 11:30:00 +05:30
+categories:
+- Football
+- Bollywood
+- Premier League
+tags:
+- Chelsea India
+- Chelsea FC
+- Chelsea
+- Arjun Kapoor
+- Frank Lampard
+- India
+- Premier League
 ---
 
 ![1 Arjun.jpg](/uploads/1%20Arjun.jpg)
