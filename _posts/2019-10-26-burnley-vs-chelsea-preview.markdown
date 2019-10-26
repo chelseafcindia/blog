@@ -29,7 +29,7 @@ Chelsea travel to Turf Moor with 6 consecutive wins till now, and would be looki
 
 **Burnley** have won just one of their 10 Premier League meetings with Chelsea (D3 L6), winning 3-2 at Stamford Bridge in August 2017.
 
-**Chelsea ** have scored in all 10 of their Premier League encounters against Burnley - among sides they've never failed to score against in the competition, the Blues have only played more games against Portsmouth (14), Derby (14) and Wigan (16).
+**Chelsea** have scored in all 10 of their Premier League encounters against Burnley - among sides they've never failed to score against in the competition, the Blues have only played more games against Portsmouth (14), Derby (14) and Wigan (16).
 
 **Chelsea boss Frank Lampard** is looking to win four successive league games for the first time in his managerial career, with the Blues last winning four Premier League games in a row in September 2018 (Maurizio Sarri's first five in charge of the club).
 
