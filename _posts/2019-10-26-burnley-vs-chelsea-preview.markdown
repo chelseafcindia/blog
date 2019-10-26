@@ -27,15 +27,15 @@ Chelsea travel to Turf Moor with 6 consecutive wins till now, and would be looki
 
 ## Interesting Stats Ahead of the Game
 
-1. Burnley have won just one of their 10 Premier League meetings with Chelsea (D3 L6), winning 3-2 at Stamford Bridge in August 2017.
+**Burnley** have won just one of their 10 Premier League meetings with Chelsea (D3 L6), winning 3-2 at Stamford Bridge in August 2017.
 
-1. Chelsea have scored in all 10 of their Premier League encounters against Burnley - among sides they've never failed to score against in the competition, the Blues have only played more games against Portsmouth (14), Derby (14) and Wigan (16).
+**Chelsea ** have scored in all 10 of their Premier League encounters against Burnley - among sides they've never failed to score against in the competition, the Blues have only played more games against Portsmouth (14), Derby (14) and Wigan (16).
 
-* Chelsea boss Frank Lampard is looking to win four successive league games for the first time in his managerial career, with the Blues last winning four Premier League games in a row in September 2018 (Maurizio Sarri's first five in charge of the club).
+**Chelsea boss Frank Lampard** is looking to win four successive league games for the first time in his managerial career, with the Blues last winning four Premier League games in a row in September 2018 (Maurizio Sarri's first five in charge of the club).
 
-* Burnley have only won one of their 25 Premier League encounters with "big six" clubs (W1 D6 L18), a 2-1 victory against Tottenham at Turf Moor in February 2019. In fact, the Clarets are without a clean sheet in their last 34 such games, conceding 75 goals.
+**Burnley** have only won one of their 25 Premier League encounters with "big six" clubs (W1 D6 L18), a 2-1 victory against Tottenham at Turf Moor in February 2019. In fact, the Clarets are without a clean sheet in their last 34 such games, conceding 75 goals.
 
-* Both Tammy Abraham and Mason Mount have found the net in each of Chelsea's last three Premier League away games, the last Blues player to score in four consecutive appearances on the road was Diego Costa in December 2016 (four games).
+**Both Tammy Abraham and Mason Mount** have found the net in each of Chelsea's last three Premier League away games, the last Blues player to score in four consecutive appearances on the road was Diego Costa in December 2016 (four games).
 
 ![1 Team-4c22bf.jpg](/uploads/1%20Team-4c22bf.jpg)
 
