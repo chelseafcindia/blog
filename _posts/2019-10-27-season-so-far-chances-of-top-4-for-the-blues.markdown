@@ -40,7 +40,7 @@ The top goal scorer of Premier League, Tammy Abraham, has to keep his consistenc
 
 Mason Mount, another academy star who was part of Lampard's Derby County journey, has shown his prominent role in attacking midfield. 
 
-[4 Kante.JPEG](/uploads/4%20Kante.JPEG)
+![4 Kante Ngolo.jpg](/uploads/4%20Kante%20Ngolo.jpg)
 
 The star player of the squad and amongst one of the best Premier League midfielders, currently out on another injury, Ngolo Kante's role in manager's tactics has come out to be very vital. 
 
