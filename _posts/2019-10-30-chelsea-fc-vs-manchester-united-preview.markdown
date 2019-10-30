@@ -33,7 +33,7 @@ The Blues will be back in action tonight, as they take on Manchester United in t
 
 ![2 Lampard PC.png](/uploads/2%20Lampard%20PC.png)
 
-KKey take away from Frank’s pre-match press conference this week were:
+Key take away from Frank’s pre-match press conference this week were:
 
 Kante and Rudiger are still out due to their injuries, while Christensen and Barkley could be back for us as the Gaffer didn’t confirm their unavailability and on the positive side, there were no fresh injury updates from the manager. Speaking about the last meeting against Manchester United at the beginning of the season, Frank made it clear that the heavy loss at Old Trafford would not be used as a motivator, as the team have improved a lot since then and this team in now a totally different unit than what it was at the start of the season. Mentioning the squad, the Gaffer pointed out that there will be rotation in the playing XI, to rest the key players of our team and chances would be given to the experienced players who haven’t got much game time this season along with the youngsters. About the fixture, Frank was clear on the point that they have some top talents in their squad, and irrespective of their current run of form, he would be expecting a good fight from the opponents in tonight’s game.
 
