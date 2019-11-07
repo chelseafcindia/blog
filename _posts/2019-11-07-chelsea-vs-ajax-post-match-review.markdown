@@ -25,17 +25,17 @@ tags:
 
 The Blues had an epic clash with the Dutch champions Ajax on Tuesday in their first return fixture of the Champions League. Despite being down by 1-4, the Blues managed to level the score in the final 27 minutes, with 4-4 on the last whistle of the game.
 
-Ajax started the game with energy and dominated the game in a manner, which earned themself an early lead at the Bridge inside two minutes. Tammy, who misjudged Promes’ free kick, guided the ball into his own net. However, the Dutch side were not able to hold the lead for long time. Right after the restart, Chelsea were awarded a penalty as Pulisic brought down inside the box, was eventually converted easily by Jorginho from the spot.
+Ajax started the game with energy and dominated the game in a manner, which earned themselves an early lead at the Bridge inside two minutes. Tammy, who misjudged** Promes**’ free kick, guided the ball into his own net. However, the Dutch side were not able to hold the lead for long time. Right after the restart, Chelsea were awarded a penalty as Pulisic brought down inside the box, was eventually converted easily by **Jorginho** from the spot.
 
 ![4 Ziyech.jpg](/uploads/4%20Ziyech.jpg)
 
-The game went on in an emphatic pace with both the sides showing positive vibes of keeping the possession. Abraham thought he gave the lead for the hosts in the 15th minute but was adjudged offside. Ajax took the lead five minutes later, by yet another Promes brilliance, when he headed home beating the defence from a spectacular cross from Morocco’s Hakim Ziyech.
+The game went on in an emphatic pace with both the sides showing positive vibes of keeping the possession. Abraham thought he gave the lead for the hosts in the 15th minute but was adjudged offside. Ajax took the lead five minutes later, by yet another **Promes** brilliance, when he headed home beating the defence from a spectacular cross from Morocco’s Hakim Ziyech.
 
-Rubbing salt to the wound, Ajax leaped into a two-goal lead in 35th minute through Ziyech’s perfect free kick, which eventually went in after hitting Kepa’s face as it bounced off the post. Reece James replaced Alonso for the final 45 minutes of the game. Lampard’s army looked very promising in the second half. But the Blues were left disappointed when van de Beek fired his side to a comfortable three goal lead by 55th minute, as the score read 1-4.
+Rubbing salt to the wound, Ajax leaped into a two-goal lead in 35th minute through **Ziyech**’s perfect free kick, which eventually went in after hitting Kepa’s face as it bounced off the post. Reece James replaced Alonso for the final 45 minutes of the game. Lampard’s army looked very promising in the second half. But the Blues were left disappointed when **van de Beek** fired his side to a comfortable three goal lead by 55th minute, as the score read 1-4.
 
 ![3 Ajax.jpg](/uploads/3%20Ajax.jpg)
 
-It appeared clearly that the away side was cruising towards an easy win at Bridge, but soon, Chelsea received a lifeline when captain Azpilicueta tapped it in from point blank. The plot turned interesting when two Ajax players were sent off simultaneously receiving their second yellow of the game. Daley Blind & Joël Veltman were the culprits, fouling Tammy and handling the ball inside the box respectively. The resulting penalty from Veltman’s handball, was converted again by Jorginho hinting a comeback in the cards.
+It appeared clearly that the away side was cruising towards an easy win at Bridge, but soon, Chelsea received a lifeline when captain **Azpilicueta** tapped it in from point blank. The plot turned interesting when two Ajax players were sent off simultaneously receiving their second yellow of the game. **Daley Blind** & **Joël Veltman** were the culprits, fouling Tammy and handling the ball inside the box respectively. The resulting penalty from Veltman’s handball, was converted again by **Jorginho** hinting a comeback in the cards.
 
 ![1 red card.jpg](/uploads/1%20red%20card.jpg)
 
@@ -49,9 +49,9 @@ All the three first half goals by Ajax came thorough crosses and Chelsea’s swi
 
 ### Player Ratings
 
-Kepa (4) Azpilicueta (7) Zouma (6) Tomori (6) Alonso (4) Jorginho (9\*) Kovacic (7) Mount (6) Willian (7) Pulisic (6) Abraham (5)
+Kepa (4); Azpilicueta (7); Zouma (6); Tomori (6); Alonso (4); **Jorginho (9)**; Kovacic (7); Mount (6); Willian (7); Pulisic (6); Abraham (5)
 
-Substitutes – James (7) Odoi (6) Batshuayi (6)
+Substitutes – James (7); Odoi (6); Batshuayi (6)
 
 ### Star Player
 
@@ -69,9 +69,9 @@ The away side dealt with the series of controversial scenarios, no doubt were on
 
 ### Player Ratings
 
-Onana (7) Mazraoui (6) Veltmen (5) Blind (6) Tagliafico (6) Beek (7) Ziyech (9\*) Martinez (6) Neres (6) Promes (8) Tadic (7)
+Onana (7); Mazraoui (6); Veltmen (5); Blind (6); Tagliafico (6); Beek (7); **Ziyech (9)**; Martinez (6); Neres (6); Promes (8); Tadic (7)
 
-Substitute – Schuurs (5) Alvarez (5)
+Substitutes – Schuurs (5); Alvarez (5)
 
 ### Looking Forward
 
