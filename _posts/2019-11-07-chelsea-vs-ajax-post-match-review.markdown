@@ -1,5 +1,5 @@
 ---
-title: Chelsea vs Ajax – Post Match Review
+title: Chelsea FC vs AFC Ajax – Post Match Review
 date: 2019-11-07 17:17:00 +05:30
 categories:
 - Football
@@ -41,7 +41,7 @@ It appeared clearly that the away side was cruising towards an easy win at Bridg
 
 ## Key talking points
 
-### Chelsea
+### Chelsea FC
 
 Lampard knew that an away win against Ajax was a boost towards their rest of the group stage matches, but it did not work out well after his side conceded just after two minutes with worst possible start. Although, Jorginho equalized a few seconds later, Promes’ goal gave Ajax the lead later in the first half. Ziyech’s goal added to the lead and was evident enough of their homework to tackle Chelsea’s defence.
 
@@ -61,7 +61,7 @@ With Kovacic playing phenomenal in the first half of the game and held the mid f
 
 The Italian dictated the whole game through his tempo and urged the players to attack prominently every time. It was his penalty that gave Chelsea the equaliser along with his dominance in the mid field. He got the second chance of converting from the spot, which he comfortably did and brought the team to a draw after ludicrous series of events.
 
-### Ajax
+### AFC Ajax
 
 ![3 Ajax.jpg](/uploads/3%20Ajax.jpg)
 
