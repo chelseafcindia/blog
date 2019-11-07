@@ -25,7 +25,7 @@ tags:
 
 The Blues had an epic clash with the Dutch champions Ajax on Tuesday in their first return fixture of the Champions League. Despite being down by 1-4, the Blues managed to level the score in the final 27 minutes, with 4-4 on the last whistle of the game.
 
-Ajax started the game with energy and dominated the game in a manner, which earned themselves an early lead at the Bridge inside two minutes. Tammy, who misjudged** Promes**’ free kick, guided the ball into his own net. However, the Dutch side were not able to hold the lead for long time. Right after the restart, Chelsea were awarded a penalty as Pulisic brought down inside the box, was eventually converted easily by **Jorginho** from the spot.
+Ajax started the game with energy and dominated the game in a manner, which earned themselves an early lead at the Bridge inside two minutes. Tammy, who misjudged **Promes**’ free kick, guided the ball into his own net. However, the Dutch side were not able to hold the lead for long time. Right after the restart, Chelsea were awarded a penalty as Pulisic brought down inside the box, was eventually converted easily by **Jorginho** from the spot.
 
 ![4 Ziyech.jpg](/uploads/4%20Ziyech.jpg)
 
