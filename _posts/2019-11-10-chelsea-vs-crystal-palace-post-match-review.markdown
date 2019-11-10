@@ -35,11 +35,11 @@ The match started encouragingly for Chelsea, as we had around 72% possession of 
 
 After few fouls, crystal palace came into the match and created few rare half chances for themselves. The half time ended at 0-0 with 1/2 attempt (s) on target for us, and none for the Eagles.
 
-Second half again started brightly for us. And at 52 minute mark finally, we broke the deadlock via our #9, Tammy Abraham. It was a slick move with Kante passing to Willian who slyly moved it in path of Tammy who in turn took his chance well by opening his body and putting the ball past Palace GK in the net. 1-0 to us at 52'.
+Second half again started brightly for us. And at 52 minute mark finally, we broke the deadlock via our #9, **Tammy Abraham**. It was a slick move with Kante passing to Willian who slyly moved it in path of Tammy who in turn took his chance well by opening his body and putting the ball past Palace GK in the net. 1-0 to us at 52'.
 
 ![0_Chelsea-v-Crystal-Palace-Premier-League-Stamford-Bridge.jpg](/uploads/0_Chelsea-v-Crystal-Palace-Premier-League-Stamford-Bridge.jpg)
 
-The goal took out the wind out of Eagles' wings (pun intended). We dominated the possession again. Lampard sent on Batshuayi for Abraham at 73' to give him some minutes and rest to our top goalscorer. In few minutes of his introduction, our Batsman again linked up with our Captain America. Pulisic passing to Batshuayi, who took a shot which got deflected off of Palace defender and bounced in path of the rushing Pulisic, who headed the ball in the net for our second goal of the night. 2-0 Chelsea at 79' and that was it for the match.
+The goal took out the wind out of Eagles' wings (pun intended). We dominated the possession again. Lampard sent on Batshuayi for Abraham at 73' to give him some minutes and rest to our top goalscorer. In few minutes of his introduction, our Batsman again linked up with our Captain America. Pulisic passing to Batshuayi, who took a shot which got deflected off of Palace defender and bounced in path of the rushing **Pulisic**, who headed the ball in the net for our second goal of the night. 2-0 Chelsea at 79' and that was it for the match.
 
 ![chelsea-crystal-palace-091119u.jpg](/uploads/chelsea-crystal-palace-091119u.jpg)
 
@@ -53,7 +53,7 @@ The young blues controlled the rest of the match and kept a 3rd clean sheet in 3
 
 Kepa (7); Reece James (9); Zouma (8); Tomori (7); Emerson (7); Kante (7); Kovacic (8); Willian (8); Mount (7); Pulisic (9); Abraham (8)
 
-**Subs**
+**Subs:**
 Batshuayi (7); Hudson-Odoi (NA); Gilmour (NA)
 
 ### Star Player
