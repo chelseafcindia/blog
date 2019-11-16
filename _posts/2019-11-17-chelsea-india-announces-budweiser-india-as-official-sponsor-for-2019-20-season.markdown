@@ -19,6 +19,7 @@ tags:
 
 ## Budweiser signs a one-year deal with Chelsea India
 
+
 ![OFFICIAL PARTNER - BUDWEISER.png](/uploads/OFFICIAL%20PARTNER%20-%20BUDWEISER.png)
 
 Chelsea India Supporters' Club is pleased to announce that Budweiser India will be associated with the club as an Official Sponsor for the 2019/20 season. The partnership will see the Budweiser be part of the supporters' clubs all the marketing and communication collaterals.
