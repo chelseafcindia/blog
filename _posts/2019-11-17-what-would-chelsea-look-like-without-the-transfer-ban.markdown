@@ -1,5 +1,5 @@
 ---
-title: What Would Chelsea Look Like Without the Transfer Ban?
+title: What Would Chelsea FC Look Like Without the Transfer Ban?
 date: 2019-11-17 00:33:00 +05:30
 categories:
 - Chelsea FC
