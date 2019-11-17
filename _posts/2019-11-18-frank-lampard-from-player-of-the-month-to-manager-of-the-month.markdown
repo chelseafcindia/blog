@@ -45,7 +45,7 @@ Lampard's Premier League debut with Chelsea came on 19 August 2001 in a 1–1 dr
 
 Lampard appeared in all of Chelsea's league matches and scored eight goals in the 2001–02 season. He netted the match-winner in the Blues' 2002–03 seasons opener against Charlton Athletic.
 
- The following season, he was selected as the Premier League Player of the Month in September 2003, and the PFA Fans' Player of the Month in October. Chelsea finished second in 2003–04 Premier League season, behind the Arsenal's 'Invincibles' and he was named in the 2004 PFA Team of the Year as he reached double figures in league goals (10) for the first time in his career. In addition, he netted four goals in fourteen UEFA Champions League matches, as Chelsea advanced to the semi-finals. In the semi-final against Monaco,  Chelsea lost 5–3 on aggregate, despite Lampard's goal. At the end of the season, he came second behind Thierry Henry for the 2004 FWA Footballer of the Year award.
+The following season, he was selected as the Premier League Player of the Month in September 2003, and the PFA Fans' Player of the Month in October. Chelsea finished second in 2003–04 Premier League season, behind the Arsenal's 'Invincibles' and he was named in the 2004 PFA Team of the Year as he reached double figures in league goals (10) for the first time in his career. In addition, he netted four goals in fourteen UEFA Champions League matches, as Chelsea advanced to the semi-finals. In the semi-final against Monaco,  Chelsea lost 5–3 on aggregate, despite Lampard's goal. At the end of the season, he came second behind Thierry Henry for the 2004 FWA Footballer of the Year award.
 
 Lampard played in all 38 Premier League matches for the third consecutive season in 2004–05. He finished with 13 goals (19 in all competitions), in addition to leading the league in assists with 16. He won back to back two Premier League titles with the club and had one of the biggest hands in this success story. He took home the Football League Cup, in which Lampard scored twice in six matches, which included the opening goal against Manchester United in the semi-final, which Chelsea won 2–1. He landed his first personal award by being named the 2005 Footballer of the Year. 
 
@@ -83,7 +83,8 @@ In his first season in charge of Derby, Lampard guided the club to the Champions
 
 Upon the conclusion of the season, Lampard was heavily linked with the vacant managerial spot at former club Chelsea. On 25th June 2019, Derby granted Lampard permission to hold talks with the Chelsea bosses over the said position.
 
-## START THE BOUNCE! HE’S COMING HOME!
+## ## START THE BOUNCE! HE’S COMING HOME!
+
 
 ### Managerial Career at Chelsea Football Club
 
