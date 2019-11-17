@@ -30,5 +30,4 @@ nav:
 sass:
   style: compressed
 comments: true
-disqus:
-  shortname: chelseaindia
+disqus: chelseaindia
