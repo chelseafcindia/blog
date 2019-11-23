@@ -29,7 +29,7 @@ The international break is finally over and the boys in blue will be seen back i
 
 ![2-032144.jpg](/uploads/2-032144.jpg)
 
-### Key Takeaways From Frank’s Pre-match Press Conference:
+### Key Takeaways From Frank’s Pre-match Press Conference
 
 Our Gaffer made it quite clear that he would never manage Spurs when asked about a probable job opportunity in the North London club in the future. Frank did confirm that Callum had a hamstring injury and would miss the game upcoming game against City. He also spoke about Pulisic, who faced a hip injury in the last game against Crystal Palace and was also not a part of the US Men’s National Team in the last international break. Speaking about him, Frank said that Pulisic did train with the 1st team in the midweek, but he would be still in contention to play the Man City game. No updates were provided by the gaffer regarding our long term absentee Ruben Loftus Cheek. 
 
@@ -45,7 +45,7 @@ Chelsea are expected to play in 4-3-3 formation against Manchester City tonight.
 
 ![3-c95278.jpg](/uploads/3-c95278.jpg) *Photo courtesy: www.buildlineup.com*
 
-Players to Watch Out for:
+## Players to Watch Out for
 
 **N'golo Kante:** A big man for a big stage. Always gives his best in all our games and tonight will be a big test for him, especially to stop City’s free flowing football on the pitch. A lot depends on his shoulders and he needs to be at his best to get something out from tonight’s game.
 
