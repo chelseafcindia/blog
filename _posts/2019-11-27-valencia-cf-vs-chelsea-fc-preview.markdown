@@ -42,7 +42,9 @@ The blues were involved in a dramatic game against Ajax in the last match of Gro
 ## Injuries and Suspension
 
 Ruben Loftus Cheek (Achilles injury, **ruled out**)
+
 Antonio Rudiger (Pelvic pain, **contention**)
+
 Ross Barkley (Ankle injury, **contention**)
 
 ## Predicted Playing XI
