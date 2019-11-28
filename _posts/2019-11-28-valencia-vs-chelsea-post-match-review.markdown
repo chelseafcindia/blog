@@ -19,7 +19,7 @@ tags:
 - Mastella
 ---
 
-Yet another thrilling end result for the English side’s Lampard army after the 2-2 draw against the Spanish Club, Valencia at the Mestella Stadium. Both the teams after the emphatic fixture has made them on a must win situation next game-week for getting qualify to UCL Round of 16.  The bizarre late equaliser by Wass denied Chelsea side a chance of qualifications to the round of 16 yesterday. 
+Yet another thrilling result for Frank Lampard's army after the 2-2 draw against the Spanish Club, Valencia at the Mestella Stadium. Both the teams after the emphatic fixture has made them on a must win situation next game-week for getting qualify to UCL Round of 16.  The bizarre late equaliser by Wass denied Chelsea side a chance of qualifications to the round of 16 yesterday. 
 
 ![1-85216c.jpg](/uploads/1-85216c.jpg)
 
