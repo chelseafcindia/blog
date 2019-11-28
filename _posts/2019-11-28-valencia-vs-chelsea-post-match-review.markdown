@@ -71,6 +71,7 @@ You couldn't take your eyes off proceedings, but the manner in which Chelsea wer
 
 ## Star Player of The Match
 ### Mateo Kovacic
+
 ![7-9505bb.jpg](/uploads/7-9505bb.jpg)
 
 Surely the Croatian international deserve to be the star of the match in last fixture after he reacted suddenly to the first goal by Valencia in the 40’ and scored outside the box at 41’ on his 71st appearance for the club, which was his maiden goal for the club. You don’t need to scratch your eyes, he did scored his maiden goal and it was not simple goal, the finish by the Croatian was on next level. 
