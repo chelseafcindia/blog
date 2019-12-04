@@ -26,7 +26,7 @@ tags:
 - Stamford Bridge
 ---
 
-[1-6f64d8.JPG](/uploads/1-6f64d8.JPG)
+[1-8ffc11.JPG](/uploads/1-8ffc11.JPG)
 
 Chelsea will be looking to bounce back after back to back losses, after winning 6 consecutive Premier League games. Aston Villa last played against Chelsea in 2015-16 season return to Premier League with hopes of staying in the top flight. 
 
