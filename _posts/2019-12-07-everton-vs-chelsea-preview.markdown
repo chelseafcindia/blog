@@ -29,13 +29,13 @@ After a convincing victory against Aston Villa at home, Chelsea travel to Mersey
 
 ## Team News
 
-* **Tammy Abraham** is fit and available for the game after coming off with a knock against Aston Villa.
+**Tammy Abraham** is fit and available for the game after coming off with a knock against Aston Villa.
 
-* **Ross Barkley**, an ex Everton player, who hasn’t played since October, is also back in the reckoning for Chelsea. 
+**Ross Barkley**, an ex Everton player, who hasn’t played since October, is also back in the reckoning for Chelsea. 
 
-* **Antonio Rudiger** has stepped up his recovery confirmed by Frank Lampard, but won be playing at Merseyside.
+**Antonio Rudiger** has stepped up his recovery confirmed by Frank Lampard, but won be playing at Merseyside.
 
-* **Ruben Loftus-Cheek** remains a long-term absentee.
+**Ruben Loftus-Cheek** remains a long-term absentee.
 
 ## Chelsea’s Predicted XI
 
@@ -64,13 +64,13 @@ From 69th minute to 77th minute, in gap of 8 minutes, both teams produced 5 goal
 
 * Frank Lampard’s playing record for Chelsea against the Toffees was 15 wins, 11 draws and four defeats, scoring 10 goals.
 
-* Chelsea have won overall 72 games against Everton, drew 54 games and lost 55 times.
+Chelsea have won overall 72 games against Everton, drew 54 games and lost 55 times.
 
-* Chelsea have scored 19 goals in their seven away league games this season - they've never scored more after seven games on the road in a single league campaign (level with 1966-67 and 2008-09). The Blues are averaging 6.7 shots on target per away game this season, their highest in a Premier League campaign since at least 2003-04.
+Chelsea have scored 19 goals in their seven away league games this season - they've never scored more after seven games on the road in a single league campaign (level with 1966-67 and 2008-09). The Blues are averaging 6.7 shots on target per away game this season, their highest in a Premier League campaign since at least 2003-04.
 
-* Chelsea's Christian Pulisic has been directly involved in six goals in his last five Premier League away games, scoring four and assisting two.
+Chelsea's Christian Pulisic has been directly involved in six goals in his last five Premier League away games, scoring four and assisting two.
 
-* Tammy Abraham has been involved in 14 (11 goals and 3 assists) goals this Premier League season. Only Jamie Vardy has had a hand in more.
+Tammy Abraham has been involved in 14 (11 goals and 3 assists) goals this Premier League season. Only Jamie Vardy has had a hand in more.* 
 
 > Keep The Blue Flag Flying High..!!!
 
