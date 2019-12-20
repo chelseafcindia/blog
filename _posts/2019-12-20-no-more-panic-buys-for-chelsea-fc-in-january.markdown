@@ -53,3 +53,7 @@ Frank Lampard could take some lessons from Jurgen Klopp and Liverpool in this re
 ![888938362.jpg](/uploads/888938362.jpg)
 
 A couple of other quality names that Chelsea have been linked with and would help Chelsea improve in the long term are Leicester’s Ben Chilwell and RB Leipzig’s Timo Werner. But as mentioned above these players too would be next to impossible to sign in January. Leicester would like to consolidate their position in the top four by the end of the season and RB Leipzig are currently top of the Bundesliga are in search of their first ever major trophy. Selling Chilwell and Werner could make their ambitions more difficult to achieve. If Chelsea want to reach their former heights and hope to challenge Liverpool and Manchester City one day then they should be signing top quality players and not settle for players like Wilfred Zaha and Nathan Ake who with all due respect are not much better than what Chelsea already have in their squad. 
+
+> Keep The Blue Flag Flying High...!!!
+
+**- Ankit Agrawal**
