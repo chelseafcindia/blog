@@ -1,6 +1,21 @@
 ---
 title: Tottenham Hotspur vs Chelsea FC- Preview
 date: 2019-12-21 12:13:00 +05:30
+tags:
+- Chelsea
+- Chelsea FC
+- Chelsea India
+- Matchday
+- Matchday Preview
+- Mateo Kovacic
+- Frank Lampard
+- Antonio Rudiger
+- Tammy Abraham
+- Jose Mourinho
+- London Derby
+- Tottenham Hotspur
+- Spurs
+- Mason Mount
 ---
 
 ![WhatsApp Image 2019-12-20 at 10.12.05 PM.jpeg](/uploads/WhatsApp%20Image%202019-12-20%20at%2010.12.05%20PM.jpeg)
