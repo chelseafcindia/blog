@@ -1,6 +1,13 @@
 ---
 title: Tottenham Hotspur vs Chelsea FC- Preview
 date: 2019-12-21 12:13:00 +05:30
+categories:
+- Matchday
+- Matchday Preview
+- Premier League
+- English Premier League
+- London Derby
+- Football
 tags:
 - Chelsea
 - Chelsea FC
