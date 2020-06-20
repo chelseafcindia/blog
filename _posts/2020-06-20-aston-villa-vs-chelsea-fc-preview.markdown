@@ -45,7 +45,7 @@ This game would be more emotional for Chelsea fans, as they would be seeing the 
 
 Chelsea are expected to play in 4-2-3-1 formation against Villa. The midfield will be the focal point of Chelsea’s press and build up play against a good counter attacking opposition. This is the team we can expect for the game:
 
-![lineup-6b8bb1.png](/uploads/lineup-6b8bb1.png)
+![lineup-6b8bb1.png](/uploads/lineup-6b8bb1.png) *Photo Courtesy: www.buildlineup.com*
 
 # Memories at Villa Park
 
