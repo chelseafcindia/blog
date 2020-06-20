@@ -12,11 +12,17 @@ The Blues return to action after 3 months due to Pandemic and will be facing Ast
 # From Lampard’s Press Conference
 
 • Ruben Loftus-Cheek is physically fit and has looked good in training ahead of the season restart.
+
 • When asked about Pedro and Willian “'They're ongoing and we have until next week to find a solution. It will be good to finish the season with the squad we started with.'”
+
 • Tomori has a muscle injury, maybe due to the stresses of getting fit quickly, and is out for 10 days.
+
 • Hudson-Odoi had a small injury earlier on and is not match fit, albeit he is physically fit.
+
 • Jorginho is suspended after picking up 10 yellow cards this season.
+
 • Tammy who missed previous 3 games due to ankle injury in March, could feature for tonight’s game.
+
 • Andreas Christensen would be featuring despite breaking his finger in training 2 weeks ago.
 
 ![2-32a94a.jpg](/uploads/2-32a94a.jpg)
