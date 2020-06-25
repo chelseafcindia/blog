@@ -30,6 +30,8 @@ With only few league fixtures left in this season, the objective must be to reta
 
 # Frank Lampard’s Press Conference
 
+![1-b2e3d4.jpg](/uploads/1-b2e3d4.jpg)
+
 Key takeaways from Frank’s pre-match press conference this week were;  Gaffer when asked about the team news and injuries mentioned that Tomori and Callum Hudson-Odoi are still few weeks away from matchday fitness. He also stated that he was very delighted for Willian and Pedro for their respective contract extensions till the end of the season, mentioning them to be very important players for the team. When asked about the transfer speculation regarding Kai Havertz, Frank stated that he is a top player but there were no official bids from the club regarding the same player. When asked about  Liverpool being the favourites to win the title if the blues were to beat City in tonight’s game, Frank lauded what Liverpool had done in this season but also stated that the primary focus is to try and win against ManCity. 
 
 Frank when asked about the situation of chasing down Leicester City who are currently 3rd in the league table stated that the competition is fierce and there are tough games still left to come and hence the focus should only be on his own team and not on others. Finally when asked about a chance to test the current squad against Man City, Frank stated that every game is an opportunity to see the growth of the team, but against City, it would be a great opportunity for the squad to prove themselves as the objective of team is also to close the gap and reach at that level as well.
