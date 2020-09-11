@@ -72,4 +72,4 @@ UEFA Champions League: Quarter finals
 
 > *Keep The Blue Flag Flying High!!!*
 
-`***- Anand Prem (CISC- Navi Mumbai)***`
+`- Anand Prem (CISC- Navi Mumbai)`
