@@ -35,7 +35,7 @@ Brighton, who were involved in the relegation battle last season did well to sur
 
 Frank Lampard confirmed on Thursday that Hakim Ziyech and Ben Chilwell will not be fit for the game. Thiago Silva is also expected to miss the game due to lack of match fitness but Cesar Azpilicueta and Christian Pulisic are expected to make it to the squad. Whether the play or not remains to be a question. Mateo Kovacic will also be missing the game after receiving a red card against Arsenal in the FA Cup final. 
 
-[PC.webp](/uploads/PC.webp)
+![PRI_164140075-640x360.jpg](/uploads/PRI_164140075-640x360.jpg)
 
 # Formation
 
