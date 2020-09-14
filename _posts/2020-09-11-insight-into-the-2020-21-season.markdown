@@ -64,7 +64,7 @@ Triumph in one of the cup competitions, preferably FA Cup, and reaching the quar
 
 ## Predictions 
 
-Here are my predictions for the 202-21 season: 
+Here are my predictions for the 202-21 season:
 Premier League: 3rd 
 FA Cup: Finalists
 League Cup: Finalists 
