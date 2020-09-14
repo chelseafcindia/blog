@@ -1,6 +1,28 @@
 ---
 title: Brighton vs Chelsea - Preview
 date: 2020-09-14 14:54:00 +05:30
+categories:
+- Football
+- Premier League
+- English Premier League
+- Matchday Preview
+tags:
+- Chelsea
+- Chelsea India
+- BHACHE
+- Chelsea FC
+- Brighton
+- N'golo Kante
+- Mateo Kovacic
+- Timo Werner
+- Hakim Ziyech
+- Kai Havertz
+- Frank Lampard
+- English Premier League
+- Premier League
+- Matchday Preview
+- Budweiser
+- Budweiser India
 ---
 
 ![BHACHE.png](/uploads/BHACHE.png)
