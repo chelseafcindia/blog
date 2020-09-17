@@ -1,6 +1,21 @@
 ---
 title: Scout Report- Edouard Mendy
 date: 2020-09-17 19:48:00 +05:30
+categories:
+- Football
+- English Premier League
+- Transfer Window
+tags:
+- Premier League
+- English Premier League
+- Frank Lampard
+- N'golo Kante
+- Edouard Mendy
+- Transfer Window
+- Chelsea
+- Chelsea FC
+- Chelsea India
+- Stade Rennais
 ---
 
 # Edouard Mendy- an Introduction
