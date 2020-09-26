@@ -58,15 +58,16 @@ Matheus Pereira, West Brom’s Player of the Season plays on the right wing and 
 # Current Season’s Form
 
 ### West Brom: LLWL. Scored: 7 Conceded: 10 
+
 ### Chelsea: WLW. Scored: 9 Conceded: 3 
 
 # Key Stats
 
-*West Brom have lost more Premier League game against Chelsea than to any other team. 
+1. West Brom have lost more Premier League game against Chelsea than to any other team. 
 
-*Frank Lampard’s Chelsea have kept only one clean sheet in their 20 away games in the Premier League. The Blues’ last clean sheet outside of London was in May 2019 against Leicester. 
+2. Frank Lampard’s Chelsea have kept only one clean sheet in their 20 away games in the Premier League. The Blues’ last clean sheet outside of London was in May 2019 against Leicester. 
 
-*Frank Lampard played West Brom twice in the Championship and winning both. Home 3-1, Away 4-1. 
+3. Frank Lampard played West Brom twice in the Championship and winning both. Home 3-1, Away 4-1. 
 
 # My Predictions
 
