@@ -27,7 +27,7 @@ tags:
 
 Chelsea visit The Hawthorns for a teatime kick off to face a newly promoted West Brom. West Brom, who enter this game week having lost both their Premier League fixtures, will be looking open their tally in the points table. They were dumped out of the EFL cup by Brentford and in the previous 3 games have conceded 10 goals and facing the likes of Timo Werner and Kai Havertz does not make anything easy for them. Chelsea on the other hand, bounced back from the defeat to Liverpool to beat Barnsley 6-0 in the 3rd round of the EFL cup.
 
-# Squad Report from Lapard's Press Conference
+# Squad Report from Lampard's Press Conference
 
 ![PRI_164140075-640x360.jpg](/uploads/PRI_164140075-640x360.jpg)
 
