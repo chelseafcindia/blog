@@ -1,6 +1,26 @@
 ---
 title: West Bromwich Albion vs Chelsea - Preview
 date: 2020-09-26 14:16:00 +05:30
+categories:
+- Football
+- English Premier League
+tags:
+- Chelsea
+- Chelsea India
+- Chelsea FC
+- West Brom
+- Frank Lampard
+- Kai Havertz
+- Mason Mount
+- Marcos Alonso
+- Christian Pulisic
+- Andreas Christensen
+- Stamford Bridge
+- English Premier League
+- EPL
+- Premier League
+- Matchday Preview
+- Matchday
 ---
 
 ![NEW MATCHDAY2020 copy.png](/uploads/NEW%20MATCHDAY2020%20copy.png)
@@ -42,11 +62,11 @@ Matheus Pereira, West Brom’s Player of the Season plays on the right wing and 
 
 # Key Stats
 
-* West Brom have lost more Premier League game against Chelsea than to any other team. 
+*West Brom have lost more Premier League game against Chelsea than to any other team. 
 
-* Frank Lampard’s Chelsea have kept only one clean sheet in their 20 away games in the Premier League. The Blues’ last clean sheet outside of London was in May 2019 against Leicester. 
+*Frank Lampard’s Chelsea have kept only one clean sheet in their 20 away games in the Premier League. The Blues’ last clean sheet outside of London was in May 2019 against Leicester. 
 
-* Frank Lampard played West Brom twice in the Championship and winning both. Home 3-1, Away 4-1. 
+*Frank Lampard played West Brom twice in the Championship and winning both. Home 3-1, Away 4-1. 
 
 # My Predictions
 
