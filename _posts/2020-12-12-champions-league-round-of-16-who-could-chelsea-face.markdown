@@ -29,6 +29,7 @@ Their record in the league has been quite impressive, having not lost in the fir
 
 ### Key Players: Joao Felix & Jose Gimenez
 
+
 ## 2.	Borussia Mönchengladbach 
 
 ![Bor Mon.jpg](/uploads/Bor%20Mon.jpg)
@@ -41,6 +42,7 @@ They are a very clinical team having the highest goal per shot taken as well as 
 What makes Borussia Mönchengladbach such a threat is that just like Atletico Madrid, they are a very system-oriented team. They are not dependent on one player and the team, in general, is amazing at creating chances and the strikers are very clinical in finishing them off. 
 
 ### Key Players: Lars Stindl & Alassane Plea 
+
 
 ## 3.	FC Porto 
 
@@ -55,6 +57,7 @@ Porto are also one of the most lob sided teams in the competition as well. Most 
 
 ### Key Players: Sergio Oliveria & Chancel Mbemba 
 
+
 ## 4.	Atalanta
 
 ![Atalanta-Serie-A-AP_570_850.jpg](/uploads/Atalanta-Serie-A-AP_570_850.jpg)
@@ -63,6 +66,7 @@ Atalanta were placed in a group consisting of Liverpool, Ajax and Midtjylland. T
 It is no more a hidden fact that going forward Atalanta are one of the best teams in Europe. They rank 4th in shots on target, more than Real Madrid, Bayern Munich, Juventus, Liverpool, Chelsea and PSG. They also seem to carry their finishing boots having the 5th highest goals/shot on target ratio. But that is about it to show for their underlying stats. None of their other underlying stats are very impressive and almost all of them rank somewhere in between 9th to 12th.  They are not doing very well domestically either. They are currently ranked 9th in Seria A with a game in hand and have also conceded 16 goals which is one of the highest in the country. 
 
 ### Key Players: Papu Gomez & Duvan Zapata
+
 
 ## 5.	Lazio 
 
@@ -73,6 +77,7 @@ Lazio were in a group consisting of Borussia Dortmund, Club Brugge and Zenit St.
 Statistically speaking there isn't anything very impressive about Lazio, who are punching according to their weight. They are very much dependent on Ciro Immobile and Joaquin Correa. Immobile has scored 5 and assisted 1, whereas Correa has scored 2 and assisted 2, effectively meaning that 70% of the goals have been scored by 2 players. The defence is particularly porous conceding 1.5 goals a game across all tournaments  
 
 ### Key Players: Ciro Immobile & Joaquin Correa
+
 
 ## 6.	FC Barcelona
 
@@ -86,7 +91,10 @@ They are also great at creating chances, ranking 1st in Key passes and 1st in sh
 
 ### Key Players: Lionel Messi & Frenkie De Jong
 
+
 ## 7.	RB Leipzig 
+
+![Leipzig.jpg](/uploads/Leipzig.jpg)
 
 Last year's semifinalist was placed in the group of death this season with last years finalists PSG, Manchester United and group stage debutants Istanbul Basaksehir. They finished with a record of 4 wins and 2 defeats. 
 
