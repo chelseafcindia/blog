@@ -27,7 +27,8 @@ But what makes Atletico so good is their defence and a certain Jan Oblak in betw
 
 Their record in the league has been quite impressive, having not lost in the first 10, having a lead of one point and with two games in hand, conceding only 2 goals and scoring 21.
 
-### Key Players: Joao Felix & Jose Gimenez
+### Key Players: 
+Joao Felix & Jose Gimenez
 
 
 ## 2.	Borussia Mönchengladbach 
@@ -41,7 +42,8 @@ They are a very clinical team having the highest goal per shot taken as well as 
 
 What makes Borussia Mönchengladbach such a threat is that just like Atletico Madrid, they are a very system-oriented team. They are not dependent on one player and the team, in general, is amazing at creating chances and the strikers are very clinical in finishing them off. 
 
-### Key Players: Lars Stindl & Alassane Plea 
+### Key Players: 
+Lars Stindl & Alassane Plea 
 
 
 ## 3.	FC Porto 
@@ -55,7 +57,8 @@ Going forward, they look a very lacklustre team. They are poor at creating chanc
 
 Porto are also one of the most lob sided teams in the competition as well. Most of their attacks come from the right-hand side of the pitch and coincidentally, two of their best players Jesus Corona and Sergio Oliveira also play on the right side of the pitch.
 
-### Key Players: Sergio Oliveria & Chancel Mbemba 
+### Key Players: 
+Sergio Oliveria & Chancel Mbemba 
 
 
 ## 4.	Atalanta
@@ -65,7 +68,8 @@ Porto are also one of the most lob sided teams in the competition as well. Most 
 Atalanta were placed in a group consisting of Liverpool, Ajax and Midtjylland. They were a consistent team throughout the group stages with a record of 3 wins, 2 draws and 1 defeat. They also did well to defeat Liverpool away from home 2-0 after losing 5-0 at home. 
 It is no more a hidden fact that going forward Atalanta are one of the best teams in Europe. They rank 4th in shots on target, more than Real Madrid, Bayern Munich, Juventus, Liverpool, Chelsea and PSG. They also seem to carry their finishing boots having the 5th highest goals/shot on target ratio. But that is about it to show for their underlying stats. None of their other underlying stats are very impressive and almost all of them rank somewhere in between 9th to 12th.  They are not doing very well domestically either. They are currently ranked 9th in Seria A with a game in hand and have also conceded 16 goals which is one of the highest in the country. 
 
-### Key Players: Papu Gomez & Duvan Zapata
+### Key Players: 
+Papu Gomez & Duvan Zapata
 
 
 ## 5.	Lazio 
@@ -76,7 +80,8 @@ Lazio were in a group consisting of Borussia Dortmund, Club Brugge and Zenit St.
 
 Statistically speaking there isn't anything very impressive about Lazio, who are punching according to their weight. They are very much dependent on Ciro Immobile and Joaquin Correa. Immobile has scored 5 and assisted 1, whereas Correa has scored 2 and assisted 2, effectively meaning that 70% of the goals have been scored by 2 players. The defence is particularly porous conceding 1.5 goals a game across all tournaments  
 
-### Key Players: Ciro Immobile & Joaquin Correa
+### Key Players: 
+Ciro Immobile & Joaquin Correa
 
 
 ## 6.	FC Barcelona
@@ -89,7 +94,8 @@ What makes them such a tricky fixture is that their underlying stats are unreal.
 
 They are also great at creating chances, ranking 1st in Key passes and 1st in shot creation from open play. Now the argument against such stats is that there is a lot of stat-padding. Barcelona were placed in one of the easiest groups by their standard and thus it was very easy for them to pose such numbers. However, they do pose such numbers in La Liga as well and while their form says that they are struggling, the numbers show that they are like a bomb waiting to explode. 
 
-### Key Players: Lionel Messi & Frenkie De Jong
+### Key Players: 
+Lionel Messi & Frenkie De Jong
 
 
 ## 7.	RB Leipzig 
@@ -102,7 +108,8 @@ Statistically speaking out of all the teams that qualified for the round of 16 n
 
 But since they were placed in a particularly difficult group these numbers could be significantly deviating from their potential. This is also backed by their stats in the Bundesliga which are quite higher.
 
-### Key Players: Angelino & Yussuf Poulsen 
+### Key Players: 
+Angelino & Yussuf Poulsen 
 
 ## Personal Opinion
 
