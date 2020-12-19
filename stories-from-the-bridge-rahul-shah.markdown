@@ -1,6 +1,7 @@
 ---
 title: Stories from the Bridge- Rahul Shah
 date: 2020-12-19 11:42:00 +05:30
+published: false
 layout: post
 ---
 
