@@ -1,6 +1,7 @@
 ---
 title: Stories from the Bridge- Rahul Shah
 date: 2020-12-19 11:42:00 +05:30
+layout: post
 ---
 
 ![WhatsApp Image 2020-12-19 at 11.30.17 AM (1).jpeg](/uploads/WhatsApp%20Image%202020-12-19%20at%2011.30.17%20AM%20(1).jpeg)
