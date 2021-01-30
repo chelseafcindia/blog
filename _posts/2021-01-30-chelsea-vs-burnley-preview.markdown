@@ -61,7 +61,7 @@ Chelsea on the other hand are coming with a draw from their previous game with n
 
 > Keep The Blue Flag Flying High...!!!
 
-`*-Vedant Pandey*`
+`-Vedant Pandey`
 
 
 
